@@ -46,3 +46,7 @@ Keep the streak going for massive points!
 ---
 
 ⚡ Master the chaos, chain combos, and rain destruction — Tetris will never be the same again!
+
+
+
+<img width="659" height="605" alt="image" src="https://github.com/user-attachments/assets/cb042578-5cd7-4329-9ee0-b1284d35b6cc" />
